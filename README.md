@@ -1,3 +1,3 @@
 # Arckram-Kreator-Studios
 
-Site in maintenance 
+Site under maintenance.
